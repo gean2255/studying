@@ -1,0 +1,2 @@
+# studying
+fazendo cursos
